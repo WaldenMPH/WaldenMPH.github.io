@@ -1,2 +1,3 @@
 # WaldenMPH.github.io
-womensprohoops.me
+www.womensprohoops.me
+https://twitter.com/WomensProHoops
